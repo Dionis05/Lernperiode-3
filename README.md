@@ -16,5 +16,5 @@ Grobplanung für 10 Wochen:
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
-
+Alle meine Aufgaben erfüllt und hauptsäclich an 117 gearbeitet
 ------------------------------------------------------------
