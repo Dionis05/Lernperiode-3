@@ -43,8 +43,8 @@ Alle meine Aufgaben erfüllt und hauptsäclich an 117 gearbeitet
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------ 
-feinPlanung 30.01.2025:
- 1.)  
+feinPlanung 20.02.2025:
+ 1.)  Bis HZ 6 alles fertig machen
  2.)   
  3.) 
 
