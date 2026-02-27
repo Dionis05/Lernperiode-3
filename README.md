@@ -41,7 +41,7 @@ Alle meine Aufgaben erfüllt und hauptsäclich an 117 gearbeitet
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
-
+alle meine ziele erledigt
 ------------------------------------------------------------ 
 feinPlanung 20.02.2025:
  1.)  Bis HZ 6 alles fertig machen
@@ -53,5 +53,66 @@ feinPlanung 20.02.2025:
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
+alle meine ziele erledigt
+------------------------------------------------------------
+feinPlanung 27.02.2025:
+ 1.)  An Projekt 164 arbeiten
+ 2.)   
+ 3.) 
+
+
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------
+feinPlanung 20.02.2025:
+ 1.)  
+ 2.)   
+ 3.) 
+
+
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+------------------------------------------------------------
+feinPlanung 20.02.2025:
+ 1.)  
+ 2.)   
+ 3.) 
+
+
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+------------------------------------------------------------
+feinPlanung 20.02.2025:
+ 1.)  
+ 2.)   
+ 3.) 
+
+
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+------------------------------------------------------------
+feinPlanung 20.02.2025:
+ 1.)  
+ 2.)   
+ 3.) 
+
+
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+------------------------------------------------------------
+
