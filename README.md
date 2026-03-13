@@ -77,6 +77,7 @@ feinPlanung 13.03.2025:
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
+Heute habe ich eher weniger an meinem Projekt gearbeitet, weil ich mer die commands auffrischen wollte, also vom C-sharp. Ich kann das alles auch mit ai machen, jedoch will cih die commands kennen weil das progammieren mir spass macht.
 
 ------------------------------------------------------------
 feinPlanung 20.02.2025:
