@@ -67,9 +67,9 @@ feinPlanung 27.02.2025:
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------
-feinPlanung 20.02.2025:
- 1.)  
- 2.)   
+feinPlanung 13.03.2025:
+ 1.)  Ein Progammierprojekt starten
+ 2.)  An meinem 4 wöchigen Projekt arbeiten
  3.) 
 
 
