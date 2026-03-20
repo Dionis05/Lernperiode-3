@@ -67,7 +67,7 @@ feinPlanung 27.02.2025:
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------
-feinPlanung 13.03.2025:
+feinPlanung 13.03.2026:
  1.)  Ein Progammierprojekt starten
  2.)  An meinem 4 wöchigen Projekt arbeiten
  3.) 
@@ -80,8 +80,8 @@ feinPlanung 13.03.2025:
 Heute habe ich eher weniger an meinem Projekt gearbeitet, weil ich mer die commands auffrischen wollte, also vom C-sharp. Ich kann das alles auch mit ai machen, jedoch will cih die commands kennen weil das progammieren mir spass macht.
 
 ------------------------------------------------------------
-feinPlanung 20.02.2025:
- 1.)  
+feinPlanung 20.03.2026:
+ 1.)  Am Projekt arbeiten 
  2.)   
  3.) 
 
@@ -92,7 +92,7 @@ feinPlanung 20.02.2025:
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------
-feinPlanung 20.02.2025:
+feinPlanung 20.02.2026:
  1.)  
  2.)   
  3.) 
