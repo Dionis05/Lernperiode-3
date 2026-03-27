@@ -92,8 +92,8 @@ feinPlanung 20.03.2026:
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
 ------------------------------------------------------------
-feinPlanung 20.02.2026:
- 1.)  
+feinPlanung 27.03.2026:
+ 1.)  Ich arbeite weiter am Projekt
  2.)   
  3.) 
 
